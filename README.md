@@ -1,2 +1,1 @@
-# Exerc-cio_Guia-de-Gal-xias
-# Exerc-cio_Guia-de-Gal-xias
+# Exercicio_Guia-de-Galaxias
